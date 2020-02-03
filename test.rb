@@ -5,11 +5,7 @@ scxcsdvacasxz
 aedqe
 sdvsdvewsaqt
 >>>>>>> test
-ascc
-asczxcg
-sdvxcae
-qwrqw
-xzcz
+ascc12345
 =======
 qwea
 asdas
