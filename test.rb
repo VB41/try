@@ -1,6 +1,4 @@
-<<<<<<< HEAD
-scxcsdvacasxz
-=======
-aedqe
-sdvsdvewsaqt
->>>>>>> test
+qwea
+asdas
+aczx
+asffewq
